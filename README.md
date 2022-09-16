@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bumble-ro
 - 👀 I’m interested in managing my writing projects here
-- 🌱 I’m currently learning French
+- 🌱 I’m currently learning ASL
 - 💞️ I’m looking to collaborate on poetry and manuscripts
 - 📫 Message me here if you wanna reach me
 
